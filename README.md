@@ -9,3 +9,4 @@
 <img width="1626" alt="Screen Shot 2021-06-14 at 9 06 28 PM" src="https://user-images.githubusercontent.com/77812423/121977646-72172b00-cd54-11eb-9857-992ac9159193.png">
 
 ### Summary
+There are two downsides to the plan. One downside is attempting to approve the sightings that happened which can be better portrayed in the information. Another downside is that we don't have any observer information. The suggestions I would prescribe is to assemble more information to give, for example, witness accounts and the other proposal would add more channel like length of locating.
